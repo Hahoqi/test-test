@@ -2,3 +2,10 @@
 asdsadada
 sadasdsad
 sadasdasda
+sdadasczx\]c
+zx
+cz
+xc
+zx
+c
+xz
